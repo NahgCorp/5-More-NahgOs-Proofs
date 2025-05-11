@@ -131,4 +131,5 @@ This is tone law.
 This is structural containment.
 This is NahgOS™.
 
-
+Picture Evidence of Clean ChatGPT account
+https://imgur.com/a/je7lRAE
